@@ -1,2 +1,2 @@
-# ali
-gogdksykhskkhzkhs
+سلام داداش راهنمایی میکنی چطوری درست کنم ؟؟؟  اینم ایدی تلگرامم 
+@Game_Store_shap
